@@ -1,0 +1,2 @@
+# prithiksha-
+Just another repository 
